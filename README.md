@@ -1,1 +1,1 @@
-# RIPTechnoblade.github.io
+Please, do not use any code from this project as this is my way to contributing to Technoblade's loss, as I am not apart of the Hypixel community. If you do steal code, I will be dissapointed, as well as claim a Copyright Strike on your project. Thank you.
